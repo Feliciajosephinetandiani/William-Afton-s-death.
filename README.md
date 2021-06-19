@@ -1,2 +1,2 @@
-# William-Afton-s-death.
+# William-Afton-'s-death.
 Die, William Afton
